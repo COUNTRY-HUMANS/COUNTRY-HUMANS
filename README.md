@@ -1,6 +1,7 @@
-PLAY MY GAME I WILL ADD DIGESTION AT 500 VISITS - https://www.roblox.com/games/120142492749059/get-eaten-by-mafioso-game
+PLAY MY GAME I WILL ADD DIGESTION AT 500 VISITS PLEASE PLEASE PLEASE PLAY AND LIKE AND FAVOURITE - https://www.roblox.com/games/120142492749059/get-eaten-by-mafioso-game
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=eveleen-evee&color=yellow&style=for-the-badge)
+(i gen dont know why its so many views i havent had this on my ponytown in AGES)
 
 dni if hetalia is ur main fandom
 
