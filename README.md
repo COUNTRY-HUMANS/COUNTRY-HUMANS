@@ -3,8 +3,6 @@ PLAY MY GAME I WILL ADD DIGESTION AT 500 VISITS PLEASE PLEASE PLEASE PLAY AND LI
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=eveleen-evee&color=yellow&style=for-the-badge)
 (i gen dont know why its so many views i havent had this on my ponytown in AGES)
 
-dni if hetalia is ur main fandom
-
 assume im offtab/afk unless im actively talking
 
 I'll unfriend you if you haven't played for 100+ days, sorryryyy
