@@ -1,14 +1,51 @@
-PLAY MY GAME I WILL ADD DIGESTION AT 500 VISITS PLEASE PLEASE PLEASE PLAY AND LIKE AND FAVOURITE - https://www.roblox.com/games/120142492749059/get-eaten-by-mafioso-game
+![top image](https://i.ibb.co/XfCWr4zb/Untitled140-20250725193750.png)
 
-assume im AFK or offtab if im not actively moving around or talking
 
-will follow back if u follow me
+![divider](https://i.ibb.co/DP90YJFZ/tumblr-f698d579634b29c9011e4b253ec063e2-dc5480ef-1280-1.png)
 
-auto block - AI supporter, you like vril/alt-right/incel/soyjak/4chan or anything similar to that, real life gore enjoyer, proship or any of the similar/related labels, supporting harmful paraphilia, "brutally honest" or rude for no reason
 
-every symbol that works with ponytown font -
+------
+
+### before you interact 
+- i can act very hypersexual
+- sometimes i will act very negative/pessimistic/hypocritical, but i am trying to stop
+- i dont really use tonetag other than /srs but you can ask for more
+- i make a lot of miss-spellings
+- i get jealous easily over fictional characters i like but im trying to get better
+- i dont really care about the chronically online political discourse (those who complain about lesboy, neopronoun, etc) but i will try my best to respect all good-faith idenity
+- im forgetful or get distracted easily and usually doing 2-4 or more things at once
+- assume im AFK or offtab if im not actively moving around or talking
+
+### auto block
+- AI supporter
+- you like vril/bp/alt-right/incel/soyjak/4chan or anything similar to that (its a pony game i shouldn't have to list this shit)
+- real life gore enjoyer
+- pro/darkship or any of the similar/related labels
+- supporting harmful paraphilia
+- rude for no reason
+- bigot
+
+-------
+
+
+
+every symbol that works with ponytown font (made by me!!) -
 https://docs.google.com/document/d/1mqCso9V14Jiu9uJ-zu72eOJN9mw9CE1OfSrlp9krPF0/edit?usp=sharing
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=eveleen-evee&color=yellow&style=for-the-badge)
+<center>PLAY MY GAME I WILL ADD DIGESTION AT 500 VISITS PLEASE PLEASE PLEASE PLAY AND LIKE AND FAVOURITE - https://www.roblox.com/games/120142492749059/get-eaten-by-mafioso-game </center>
 
-neocities is coming when i get another motivation flair up
+------
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=eveleen-evee&color=yellow&style=plastic)
+
+
+<a href="https://data-card-for-spotify.herokuapp.com/card?user_id=93zfsqwee1tjbz41m8p5s44qz">
+  <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=93zfsqwee1tjbz41m8p5s44qz&show_border=1&hide_title=1" alt="Data Card for Spotify">
+</a>
+
+-------
+
+![hi](https://i.ibb.co/HTdsDVyn/tumblr-7e274d2ec6d9e532884fe8afaec8f42f-08d8a0e2-1280-1.png)
+
+
+![bottom image](https://i.ibb.co/4RvG0cF0/ffffferfggnhrertfg.png)
