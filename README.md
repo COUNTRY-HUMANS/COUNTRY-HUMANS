@@ -6,7 +6,7 @@
 
 ------
 
-### before you interact 
+### before you interact
 - i can act very hypersexual
 - sometimes i will act very negative/pessimistic/hypocritical, but i am trying to stop
 - i dont really use tonetag other than /srs but you can ask for more
@@ -27,7 +27,7 @@
 
 -------
 
-
+<div align="center">
 
 every symbol that works with ponytown font (made by me!!) -
 https://docs.google.com/document/d/1mqCso9V14Jiu9uJ-zu72eOJN9mw9CE1OfSrlp9krPF0/edit?usp=sharing
@@ -44,6 +44,8 @@ https://docs.google.com/document/d/1mqCso9V14Jiu9uJ-zu72eOJN9mw9CE1OfSrlp9krPF0/
 </a>
 
 -------
+
+</div>
 
 ![hi](https://i.ibb.co/HTdsDVyn/tumblr-7e274d2ec6d9e532884fe8afaec8f42f-08d8a0e2-1280-1.png)
 
