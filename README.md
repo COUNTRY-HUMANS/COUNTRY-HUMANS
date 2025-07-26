@@ -36,7 +36,7 @@ https://docs.google.com/document/d/1mqCso9V14Jiu9uJ-zu72eOJN9mw9CE1OfSrlp9krPF0/
 
 ------
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=eveleen-evee&color=yellow&style=plastic)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=eveleen-evee&color=yellow&style=plastic&width=50&height=50)
 
 
 <a href="https://data-card-for-spotify.herokuapp.com/card?user_id=93zfsqwee1tjbz41m8p5s44qz">
