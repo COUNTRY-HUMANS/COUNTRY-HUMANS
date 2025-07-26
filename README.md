@@ -1,7 +1,7 @@
 ![header](https://i.ibb.co/XfCWr4zb/Untitled140-20250725193750.png)
 
 ![frame top](https://i.ibb.co/DP90YJFZ/tumblr-f698d579634b29c9011e4b253ec063e2-dc5480ef-1280-1.png)
-<img src="https://i.ibb.co/TBhW9Z0v/tumblr-d14f01a79524e33702107714f6d6f04e-f23c890f-1280.jpg" width="1050" height="20">
+<img src="https://i.ibb.co/7tHvQnY1/tumblr-a7fbe97a06140342cd3b3ea1211074cb-5c0ad068-1280.png" width="1050" height="20">
 
 <div align="center">
   
@@ -47,8 +47,7 @@ https://docs.google.com/document/d/1mqCso9V14Jiu9uJ-zu72eOJN9mw9CE1OfSrlp9krPF0/
 ‎ 
 
 ‎‎ 
-<img src="https://i.ibb.co/TBhW9Z0v/tumblr-d14f01a79524e33702107714f6d6f04e-f23c890f-1280.jpg" width="1050" height="20">
-
+<img src="https://i.ibb.co/7tHvQnY1/tumblr-a7fbe97a06140342cd3b3ea1211074cb-5c0ad068-1280.png" width="1050" height="20">
 ![frame bottom](https://i.ibb.co/HTdsDVyn/tumblr-7e274d2ec6d9e532884fe8afaec8f42f-08d8a0e2-1280-1.png)
 
 
@@ -58,6 +57,8 @@ https://docs.google.com/document/d/1mqCso9V14Jiu9uJ-zu72eOJN9mw9CE1OfSrlp9krPF0/
 <sub>image creds
 [header](https://finelythreadedsky.tumblr.com/post/156318898162/boris-anikin-1947)
 [frames](https://www.tumblr.com/honeyluvsw/784281021112877056/sun-themed-dividers-yellow-orange-red)
-[divider](https://www.tumblr.com/hyuneskkami/774244573133340672/solid-line-dividers-%E0%AD%AD-%E1%B5%8E%E1%B5%8E-dont-forget-to)
+[divider](https://www.tumblr.com/bronzewasp/776942919151206400/gustav-klimt-when-i-was-a-child-i-loved-the)
 [footer](https://ca.pinterest.com/pin/2322237302443700/)
+[bulletpoint](https://www.tumblr.com/emojinator/740310225452711936/yellow-pixels)
+[pfp](https://ca.pinterest.com/pin/1829656094550338/)
 </div>
