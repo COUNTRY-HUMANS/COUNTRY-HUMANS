@@ -46,12 +46,6 @@ https://docs.google.com/document/d/1mqCso9V14Jiu9uJ-zu72eOJN9mw9CE1OfSrlp9krPF0/
 <center>PLAY MY GAME I WILL ADD DIGESTION AT 500 VISITS PLEASE PLEASE PLEASE PLAY AND LIKE AND FAVOURITE - https://www.roblox.com/games/120142492749059/get-eaten-by-mafioso-game </center>
 ‎ 
 
------
-
-<a href="https://data-card-for-spotify.herokuapp.com/card?user_id=93zfsqwee1tjbz41m8p5s44qz">
-  <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=93zfsqwee1tjbz41m8p5s44qz&show_border=1&hide_title=1" alt="Data Card for Spotify">
-</a>
-
 ‎‎ 
 <img src="https://i.ibb.co/TBhW9Z0v/tumblr-d14f01a79524e33702107714f6d6f04e-f23c890f-1280.jpg" width="1050" height="20">
 
