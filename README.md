@@ -12,18 +12,18 @@
 - i dont really use tonetag other than /srs but you can ask for more
 - i make a lot of miss-spellings
 - i get jealous easily over fictional characters i like but im trying to get better
-- i dont really care about the chronically online political discourse (those who complain about lesboy, neopronoun, etc) but i will try my best to respect all good-faith idenity
+- i dont really care about the LGBTQ+ infighting (those who complain about lesboy, neopronoun, etc) but i will try my best to respect all good-faith idenity
 - im forgetful or get distracted easily and usually doing 2-4 or more things at once
 - assume im AFK or offtab if im not actively moving around or talking
 
 ### auto block
 - AI supporter
-- you like vril/bp/alt-right/incel/soyjak/4chan or anything similar to that (its a pony game i shouldn't have to list this shit)
+- you like vril/bp/alt-right/incel/soyjak/4chan/anti-furry or anything similar to that (its a pony game i shouldn't have to list this shit but i still see these fuckers walking around stinking up the map)
 - real life gore enjoyer
 - pro/darkship or any of the similar/related labels
 - supporting harmful paraphilia
 - rude for no reason
-- bigot
+- bigot/terf/transmed/radfem/radqueer/transID/extremely religious(normal religious is fine)
 
 -------
 
