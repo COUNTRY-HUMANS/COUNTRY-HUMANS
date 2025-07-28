@@ -16,15 +16,17 @@
 ## before you interact
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) assume im AFK or offtab if im not actively moving around or talking<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) my skins are 100% open to inspiration or copy, you dont need to ask. i prefer credit if you want to copy it though<br/>
+![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76le-75.webp) im fine with **playful** roleplay or talking in character, but im kind of shit at it,,<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76le-75.webp) i can act very hypersexual or flirty<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) sometimes i will act very negative/edgelord/hypocritical, but i am trying to stop<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) i dont really use tonetag other than /srs but you can ask for more<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) i make a lot of miss-spellings<br/>
-![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) my parents dont 'believe in' mental illness so im not diagnosed, but i show traits similar to people who are diagnosed with autism or adhd<br/>
+![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) i can be sooooooo awkward especially if i dont know you or youre older, but i still like to talk<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) i can get overly jealous over fictional characters i like, but im trying to get better<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) i dont really care about the LGBTQ+ infighting but i will try my best to respect all good-faith identity<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) im forgetful or get distracted easily and usually doing 2-4 or more things at once<br/>
-![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) i will jokingly act like im amazing/better than everyone/a genius. im not actually an egomaniac, its all jokes
+![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) i will jokingly act like im amazing/better than everyone/a genius. im not actually an egomaniac, its all jokes<br/>
+![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) i like to selfship playfully but i dont genuinely think the characters are my spouse irl or whatever. someones i get jealous over other selfshipper but thats just my flaw i need to work on
 
 
 ## auto block
