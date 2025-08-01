@@ -11,14 +11,14 @@
 
 **I WILL FOLLOW ANYONE WHO FOLLOWS ME BACK**
 
+**SOMETIMES THE IMAGES WILL BREAK/NOT LOAD PROPERLY AND IDK HOW TO FIX IT..**
+
 </div>
 
 ## before you interact
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) assume im AFK or offtab if im not actively moving around or talking<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) my skins are 100% open to inspiration or copy, you dont need to ask. i prefer credit if you want to copy it though<br/>
-![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76le-75.webp) im fine with **playful** roleplay or talking in character, but im kind of shit at it,,<br/>
-![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76le-75.webp) any ship that isnt incest or pedo can int<br/>
-![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76le-75.webp) i can act very hypersexual or flirty<br/>
+![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) i can act very hypersexual or flirty<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) sometimes i will act very negative/edgelord/hypocritical, but i am trying to stop<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) i dont really use tonetag other than /srs but you can ask for more<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) i make a lot of miss-spellings<br/>
