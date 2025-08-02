@@ -1,4 +1,5 @@
-![header](https://i.ibb.co/XfCWr4zb/Untitled140-20250725193750.png)
+
+ <img src="https://i.ibb.co/XfCWr4zb/Untitled140-20250725193750.png" alt="header">
 
 ![frame top](https://i.ibb.co/DP90YJFZ/tumblr-f698d579634b29c9011e4b253ec063e2-dc5480ef-1280-1.png)
 <img src="https://i.ibb.co/7tHvQnY1/tumblr-a7fbe97a06140342cd3b3ea1211074cb-5c0ad068-1280.png" width="1050" height="20">
