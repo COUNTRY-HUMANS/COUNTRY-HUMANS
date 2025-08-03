@@ -47,7 +47,7 @@
 every symbol that works with ponytown font (made by me!!) -
 https://docs.google.com/document/d/1mqCso9V14Jiu9uJ-zu72eOJN9mw9CE1OfSrlp9krPF0/edit?usp=sharing
 
-<center>PLAY MY GAME I WILL ADD DIGESTION AT 500 VISITS PLEASE PLEASE PLEASE PLAY AND LIKE AND FAVOURITE - https://www.roblox.com/games/120142492749059/get-eaten-by-mafioso-game </center>
+<center>yeah whoever report my roblocx game and got me a warning and made it conetent deleted is gonna get SLAPPED </center>
 ‎ 
 
 ‎‎ 
