@@ -39,7 +39,8 @@
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) supporting harmful paraphilia (pedo, zoo, necro, rape, incest, etc etc)<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) rude for no reason<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) bigot/terf/transmed/radfem/radqueer/transID<br/>
-![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) reich fandom, napoleon fandom, sovietcore, true crime community or any other disrespectful community that romanticizes horrible things (i dont mind historical/criminal OCs but these are a very specific type of people)<br/>
+![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) reich fandom, napoleon fandom, sovietcore, or any other disrespectful community that romanticizes horrible things (i dont mind historical/ OCs but these are a very specific type of people)<br/>
+![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) true crime community (normal people who enjoy true crime can interact but dont talk about that stuff with me or mention it near me)<br/>
 
 -----
 <div align="center">
