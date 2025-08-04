@@ -32,7 +32,7 @@
 
 
 ## auto block
-![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) AI supporter<br/>
+![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) those who support AI for creative reasons (drawing, music, writing, etc)<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) you like vril/bp/alt-right/incel/soyjak/4chan/anti-furry or anything similar to that (its a pony game i shouldn't have to list this shit)<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) real life gore enjoyer<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) pro/darkship or any of the similar/related labels<br/>
