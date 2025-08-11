@@ -44,6 +44,8 @@
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) true crime community (normal people who enjoy true crime can interact but dont talk about that stuff with me or mention it near me)<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) those AO3 superfans who act like its a holy book (idc if you use it but i personally hate it so anyone who acts like its the most amazing website ever doesnt get along with me) <br/>
 
+dni hetalia dni hetlaia dni hetalia dni heatlia 🫤🫤🫤🫤🫤🫤🫤🫤🫤🫤!!!!! exception if u also enjoy CH just dont talk to me when youre in hetalia mode PLEASEPLEASPLEASE🥹✌️🕊️☮️
+
 -----
 <div align="center">
 
