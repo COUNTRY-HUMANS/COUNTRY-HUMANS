@@ -7,8 +7,7 @@
 <div align="center">
   
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=eveleen-evee&color=yellow&style=plastic&width=50&height=50)
-
-# I WILL MAKE A NEOCITIES SOON BUT IM JUST SO FREAKING LAZY 
+ 
 **DISCORD (OPEN TO ADD) -** `eveleen.`
 
 **I WILL FOLLOW ANYONE WHO FOLLOWS ME BACK**
