@@ -1,22 +1,23 @@
 
- <img src="https://i.ibb.co/XfCWr4zb/Untitled140-20250725193750.png" alt="header">
+<img src="https://i.ibb.co/XfCWr4zb/Untitled140-20250725193750.png" alt="header">
+<img src="https://i.ibb.co/MxRRgYwN/tumblr-ed8fdf2fc5b7c33848195f5630fef746-ccd4d6a5-1280.png">
 
-![frame top](https://i.ibb.co/DP90YJFZ/tumblr-f698d579634b29c9011e4b253ec063e2-dc5480ef-1280-1.png)
-<img src="https://i.ibb.co/7tHvQnY1/tumblr-a7fbe97a06140342cd3b3ea1211074cb-5c0ad068-1280.png" width="1050" height="20">
+
 
 <div align="center">
   
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=eveleen-evee&color=yellow&style=plastic&width=50&height=50)
- 
-**DISCORD (OPEN TO ADD) -** `eveleen.`
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=eveleen-evee&color=yellow&style=plastic&label=⠀⠀🔆⠀⠀)
 
-**I DONT CHECK PROFILE BEFORE FOLLOWING, BLOCK IF UNWANTED. I WILL FOLLOW BACK**
+ ${{\color{Goldenrod}\LARGE{\textsf{DISCORD (OPEN TO ADD) ~\ \}}}}\$ <code style="color : #FFD700">eveleen.</code>
 
-**SOMETIMES THE IMAGES WILL BREAK/NOT LOAD PROPERLY AND IDK HOW TO FIX IT..**
+SOMETIMES THE IMAGES WILL BREAK/NOT LOAD PROPERLY AND IDK HOW TO FIX IT...
 
+
+<img src="https://i.ibb.co/LdBybRLq/tumblr-0116d0e6e0905585281ef2d10d591a13-f6fe3be9-1280.png">
+
+${{\color{Goldenrod}\Large{\textsf{Before You Interact\ \}}}}\$
 </div>
 
-## before you interact
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) WHISPER TO INTERACT!! if im not actively moving aroound or talking then im most likely off-tab. beware i can take a little bit to respond to whispers so be patient<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) my skins are 100% open to inspiration or copy, you dont need to ask. i prefer credit if you want to copy completely it though<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) if im alone then anyone can sit near me/cuddle/hide behind me, but i might disconnect<br/>
@@ -26,8 +27,14 @@
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) i can be sooooooo awkward especially if i dont know you or youre older, but i still like to talk<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) im forgetful or get distracted easily and usually doing 2-4 or more things at once<br/>
 
+<div align="center">
 
-## auto block
+<img src="https://i.ibb.co/LdBybRLq/tumblr-0116d0e6e0905585281ef2d10d591a13-f6fe3be9-1280.png">
+
+ ${{\color{Goldenrod}\Large{\textsf{Auto Block/DNI\ \}}}}\$
+
+</div>
+ 
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) those who support AI for creative reasons (drawing, music, writing, voice-acting, etc)<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) you like vril/bp/alt-right/incel/soyjak/4chan/anti-furry or anything similar to that (its a pony game i shouldn't have to list this shit)<br/>
 ![bullet](https://i.ibb.co/0VXdycBB/tumblr-8635b9969b67ff00a0c70bda53dceac8-fdeeb76e-75.webp) real life gore enjoyer<br/>
@@ -41,7 +48,7 @@
 
 dni hetalia dni hetlaia dni hetalia dni heatlia 🫤🫤🫤🫤🫤🫤🫤🫤🫤🫤!!!!! exception if u also enjoy CH just dont talk to me when youre in hetalia mode PLEASEPLEASPLEASE🥹✌️🕊️☮️
 
------
+<img src="https://i.ibb.co/LdBybRLq/tumblr-0116d0e6e0905585281ef2d10d591a13-f6fe3be9-1280.png">
 <div align="center">
 
 every symbol that works with ponytown font (made by me!!) -
@@ -50,14 +57,12 @@ https://docs.google.com/document/d/1mqCso9V14Jiu9uJ-zu72eOJN9mw9CE1OfSrlp9krPF0/
 watch this it has ME in it -
 https://www.youtube.com/watch?v=yExOlnrwMSE
 
-‎‎ 
-<img src="https://i.ibb.co/7tHvQnY1/tumblr-a7fbe97a06140342cd3b3ea1211074cb-5c0ad068-1280.png" width="1050" height="20">
-![frame bottom](https://i.ibb.co/HTdsDVyn/tumblr-7e274d2ec6d9e532884fe8afaec8f42f-08d8a0e2-1280-1.png)
-
+‎‎
+<img src="https://i.ibb.co/wr7QM3Bw/tumblr-e266a9a017bedb61f583f088ef1c0d7c-dc456a5b-1280.png">
 <sub>image creds
 [header](https://finelythreadedsky.tumblr.com/post/156318898162/boris-anikin-1947)
-[frames](https://www.tumblr.com/honeyluvsw/784281021112877056/sun-themed-dividers-yellow-orange-red)
-[divider](https://www.tumblr.com/bronzewasp/776942919151206400/gustav-klimt-when-i-was-a-child-i-loved-the)
-[bulletpoint](https://www.tumblr.com/emojinator/740310225452711936/yellow-pixels)
+[frames](https://www.tumblr.com/xycrowlo/790859748281122816/hi-i-made-things-credit-appreciated-but-not)
+[divider](https://www.tumblr.com/strangergraphics/792142277393956864/hello-i-was-wondering-if-you-could-do)
+[bulletpoints](https://www.tumblr.com/emojinator/740310225452711936/yellow-pixels)
 [pfp](https://ca.pinterest.com/pin/1829656094550338/)
 </div>
