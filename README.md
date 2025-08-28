@@ -1,6 +1,6 @@
 
 <img src="https://i.ibb.co/XfCWr4zb/Untitled140-20250725193750.png" alt="header">
-<img src="https://i.ibb.co/MxRRgYwN/tumblr-ed8fdf2fc5b7c33848195f5630fef746-ccd4d6a5-1280.png">
+<img src="https://i.ibb.co/5hJmCjDN/Image-3.png">
 
 
 
@@ -13,7 +13,9 @@
 SOMETIMES THE IMAGES WILL BREAK/NOT LOAD PROPERLY AND IDK HOW TO FIX IT...
 
 
-<img src="https://i.ibb.co/LdBybRLq/tumblr-0116d0e6e0905585281ef2d10d591a13-f6fe3be9-1280.png">
+<img src="https://i.ibb.co/NgvpmDs6/Image-1.png">
+
+⠀
 
 ${{\color{Goldenrod}\Large{\textsf{Before You Interact\ \}}}}\$
 </div>
@@ -58,7 +60,8 @@ watch this it has ME in it -
 https://www.youtube.com/watch?v=yExOlnrwMSE
 
 ‎‎
-<img src="https://i.ibb.co/wr7QM3Bw/tumblr-e266a9a017bedb61f583f088ef1c0d7c-dc456a5b-1280.png">
+<img src="https://i.ibb.co/m5LjLxTB/Image-2.png">
+
 <sub>image creds
 [header](https://finelythreadedsky.tumblr.com/post/156318898162/boris-anikin-1947)
 [frames](https://www.tumblr.com/xycrowlo/790859748281122816/hi-i-made-things-credit-appreciated-but-not)
