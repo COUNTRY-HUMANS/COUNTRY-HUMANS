@@ -8,7 +8,7 @@
   
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=eveleen-evee&color=yellow&style=plastic&label=⠀⠀🔆⠀⠀)
 
- ${{\color{Goldenrod}\LARGE{\textsf{DISCORD (OPEN TO ADD) ~\ \}}}}\$ <code style="color : #FFD700">eveleen.</code>
+# [ATABOOK](https://eveleen.atabook.org/)
 
 SOMETIMES THE IMAGES WILL BREAK/NOT LOAD PROPERLY AND IDK HOW TO FIX IT...
 
