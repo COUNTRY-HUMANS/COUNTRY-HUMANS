@@ -13,9 +13,8 @@
 SOMETIMES THE IMAGES WILL BREAK/NOT LOAD PROPERLY AND IDK HOW TO FIX IT...
 
 
-<img src="https://i.ibb.co/NgvpmDs6/Image-1.png">
+<img src="https://i.ibb.co/NgvpmDs6/Image-1.png"> <br/>
 
-⠀
 
 ${{\color{Goldenrod}\Large{\textsf{Before You Interact\ \}}}}\$
 </div>
