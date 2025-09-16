@@ -1,7 +1,5 @@
-<img src="https://i.ibb.co/XfCWr4zb/Untitled140-20250725193750.png" alt="header">
-<img src="https://i.ibb.co/5hJmCjDN/Image-3.png">
-
-
+<img src="https://i.ibb.co/YTdLc7Cc/Untitled140.png" alt="header">
+<img src="https://i.ibb.co/RTqMLzP7/Image-3.png" alt="alternatetext">
 
 <div align="center">
   
@@ -9,7 +7,7 @@
 
 # [ATABOOK](https://eveleen.atabook.org/)
 
-SOMETIMES THE IMAGES WILL BREAK/NOT LOAD PROPERLY AND IDK HOW TO FIX IT...
+holy shit can this freaking dumpster code stop breaking if **ONE** of these STUPUD images break ONE MORE TIME 😡😡😡😡
 
 
 <img src="https://i.ibb.co/NgvpmDs6/Image-1.png"> <br/>
