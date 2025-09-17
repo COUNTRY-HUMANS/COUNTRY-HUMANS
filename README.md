@@ -1,10 +1,10 @@
-<img src="https://i.ibb.co/YTdLc7Cc/Untitled140.png">
-
-<img 
-src="https://i.ibb.co/RTqMLzP7/Image-3.png">
-
 <div align="center">
-  
+
+<img src="https://i.ibb.co/YTdLc7Cc/Untitled140.png">
+<br/>
+
+![this fucking frame that keeps breaking](https://i.imgur.com/EmFFAm7.png)
+
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=eveleen-evee&color=yellow&style=plastic&label=⠀⠀🔆⠀⠀)
 
 # [ATABOOK](https://eveleen.atabook.org/)
@@ -29,7 +29,7 @@ ${{\color{Goldenrod}\Large{\textsf{Before You Interact\ \}}}}\$
 
 <div align="center">
 
-<img src="https://i.ibb.co/LdBybRLq/tumblr-0116d0e6e0905585281ef2d10d591a13-f6fe3be9-1280.png">
+<img src="https://64.media.tumblr.com/0116d0e6e0905585281ef2d10d591a13/92fa5bf93eff5191-49/s2048x3072/72ab9ecd8344f12e3a1ab0584f6dba4911bcc791.pnj">
 
  ${{\color{Goldenrod}\Large{\textsf{Auto Block/DNI\ \}}}}\$
 
