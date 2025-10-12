@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://i.ibb.co/YTdLc7Cc/Untitled140.png"> <br/> ![this fucking frame that keeps breaking](https://i.imgur.com/EmFFAm7.png)
+<img src="https://i.ibb.co/YTdLc7Cc/Untitled140.png"> ![this fucking frame that keeps breaking](https://i.imgur.com/EmFFAm7.png)
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=eveleen-evee&color=yellow&style=plastic&label=⠀⠀🔆⠀⠀)
 
