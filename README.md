@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://i.ibb.co/YTdLc7Cc/Untitled140.png"> ![this fucking frame that keeps breaking](https://i.imgur.com/EmFFAm7.png)
+![this fucking frame that keeps breaking](https://i.imgur.com/EmFFAm7.png)
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=eveleen-evee&color=yellow&style=plastic&label=⠀⠀🔆⠀⠀)
 
@@ -60,7 +60,6 @@ https://www.youtube.com/watch?v=yExOlnrwMSE
 ‎‎
 <img src="https://i.ibb.co/m5LjLxTB/Image-2.png">
 <sub>image creds
-[header](https://finelythreadedsky.tumblr.com/post/156318898162/boris-anikin-1947)
 [frames](https://www.tumblr.com/xycrowlo/790859748281122816/hi-i-made-things-credit-appreciated-but-not)
 [divider](https://www.tumblr.com/strangergraphics/792142277393956864/hello-i-was-wondering-if-you-could-do)
 [bulletpoints](https://www.tumblr.com/emojinator/740310225452711936/yellow-pixels)
