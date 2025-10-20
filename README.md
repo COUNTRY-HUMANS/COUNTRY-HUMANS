@@ -29,8 +29,7 @@ ${{\color{Goldenrod}\Large{\textsf{Before You Interact\ \}}}}\$
 
 <div align="center">
 
-<img src="https://i.ibb.co/D0YXcGV/d8mran7-b247236b-34b3-4e03-938d-196abc627526.png"> <img src="https://i.ibb.co/PzDQRmVS/d7hc8zl-ed429bba-94e4-4d93-a4b8-8669dbba734c.png"> <img src="https://i.ibb.co/svyBXQHQ/d2jx3kt-5e396c5e-5f90-4b3e-90e8-c3567d6a9c23.png"> <img src="https://64.media.tumblr.com/8fb43c9c42c765830924b4f13767168f/0431d7a9ce8d3941-c4/s100x200/fc6600efce1e5700d7ad80a32a6249df96c92adc.pnj"> <img src="https://64.media.tumblr.com/b4960655a00416629d065c0c81d701ce/2a96bfaf11389a44-b2/s100x200/e3761e461b2b379b1c58dcb9a92cf4e868f31c8a.pnj"> <img src="https://i.ibb.co/35Hd37tL/d1hl9jl-43563bd6-bd02-440c-8a08-7706641f5a93.png"> <img src="https://i.ibb.co/9Hhwd02S/d2gfkbl-181449ea-4b05-41a1-8199-f586f1d319dc.png"> <img src="https://64.media.tumblr.com/90ca7741aa15b9472d0a49828ae87f6e/3fda5e44e12fd176-75/s100x200/02897c53cc2ad05341a7e537f09a9b7cc4a5bcb0.pnj">
-
+<img src="https://i.ibb.co/D0YXcGV/d8mran7-b247236b-34b3-4e03-938d-196abc627526.png"> <img src="https://i.ibb.co/PzDQRmVS/d7hc8zl-ed429bba-94e4-4d93-a4b8-8669dbba734c.png"> <img src="https://i.ibb.co/svyBXQHQ/d2jx3kt-5e396c5e-5f90-4b3e-90e8-c3567d6a9c23.png"> <img src="https://64.media.tumblr.com/8fb43c9c42c765830924b4f13767168f/0431d7a9ce8d3941-c4/s100x200/fc6600efce1e5700d7ad80a32a6249df96c92adc.pnj"> <img src="https://64.media.tumblr.com/b4960655a00416629d065c0c81d701ce/2a96bfaf11389a44-b2/s100x200/e3761e461b2b379b1c58dcb9a92cf4e868f31c8a.pnj"> <img src="https://i.ibb.co/35Hd37tL/d1hl9jl-43563bd6-bd02-440c-8a08-7706641f5a93.png"> <img src="https://i.ibb.co/9Hhwd02S/d2gfkbl-181449ea-4b05-41a1-8199-f586f1d319dc.png">
 <img src="https://64.media.tumblr.com/0116d0e6e0905585281ef2d10d591a13/92fa5bf93eff5191-49/s2048x3072/72ab9ecd8344f12e3a1ab0584f6dba4911bcc791.pnj">
 
  ${{\color{Goldenrod}\Large{\textsf{Auto Block/DNI\ \}}}}\$
