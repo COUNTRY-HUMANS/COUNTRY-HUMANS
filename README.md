@@ -7,7 +7,7 @@
 
 # [ATABOOK](https://eveleen.atabook.org/)
 
-wth the profile view counter reset back to 1 wtf
+wth the profile view counter reset back to 1 wtf....
 if this FUCKING dumpster code breaks ONE more time..😡😡😡idk what ill doooooo!!!!
 BEWARE!!! ThIS CAN LOOK WONKY ON MOBILE!!! i think it depends on device and browser i have no idea
 
