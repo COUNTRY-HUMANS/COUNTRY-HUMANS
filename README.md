@@ -2,7 +2,7 @@
 
 ![this fucking frame that keeps breaking](https://i.imgur.com/EmFFAm7.png)
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=eveleen-evee&color=yellow&style=plastic&label=⠀⠀🔆⠀⠀)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=COUNTRY-HUMANS&color=yellow&style=plastic&label=⠀⠀🔆⠀⠀)
 <img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/COUNTRY-HUMANS?color=yellow&style=plastic&abbreviated=false&label=friends"/>
 
 # [ATABOOK](https://eveleen.atabook.org/)
