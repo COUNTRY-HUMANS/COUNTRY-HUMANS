@@ -12,7 +12,7 @@ if this FUCKING dumpster code breaks ONE more time..😡😡😡idk what ill doo
 BEWARE!!! ThIS CAN LOOK WONKY ON MOBILE!!! i think it depends on device and browser i have no idea
 
 
-<img src="https://i.ibb.co/NgvpmDs6/Image-1.png"> <br/>
+<img src="https://64.media.tumblr.com/0116d0e6e0905585281ef2d10d591a13/92fa5bf93eff5191-49/s2048x3072/72ab9ecd8344f12e3a1ab0584f6dba4911bcc791.pnj"> <br/>
 
 
 ${{\color{Goldenrod}\Large{\textsf{Before You Interact\ \}}}}\$
@@ -39,13 +39,13 @@ ${{\color{Goldenrod}\Large{\textsf{Before You Interact\ \}}}}\$
 <img src="https://i.ibb.co/YB7FnbTT/tumblr-a5bf618c2fb67b93809ff3e53049ad89-ca69a782-75.webp"> those who support AI for creative reasons (drawing, music, writing, voice-acting, etc)<br/>
 <img src="https://i.ibb.co/YB7FnbTT/tumblr-a5bf618c2fb67b93809ff3e53049ad89-ca69a782-75.webp"> you like vril/bp/alt-right/incel/soyjak/4chan/anti-furry or anything similar to that (its a pony game i shouldn't have to list this shit)<br/>
 <img src="https://i.ibb.co/YB7FnbTT/tumblr-a5bf618c2fb67b93809ff3e53049ad89-ca69a782-75.webp"> real life gore enjoyer<br/>
-<img src="https://i.ibb.co/YB7FnbTT/tumblr-a5bf618c2fb67b93809ff3e53049ad89-ca69a782-75.webp"> pro/darkship/anti-anti/anyone who thinks fiction doesnt effect reality<br/>
+<img src="https://i.ibb.co/YB7FnbTT/tumblr-a5bf618c2fb67b93809ff3e53049ad89-ca69a782-75.webp"> proship/darkship/anti-anti/anyone who thinks fiction doesnt effect reality<br/>
 <img src="https://i.ibb.co/YB7FnbTT/tumblr-a5bf618c2fb67b93809ff3e53049ad89-ca69a782-75.webp"> supporting harmful paraphilia (pedo, zoo, necro, rape, incest, etc etc)<br/>
-<img src="https://i.ibb.co/YB7FnbTT/tumblr-a5bf618c2fb67b93809ff3e53049ad89-ca69a782-75.webp"> rude for no reason<br/>
+<img src="https://i.ibb.co/YB7FnbTT/tumblr-a5bf618c2fb67b93809ff3e53049ad89-ca69a782-75.webp"> rude for no reason ESPECIALLY if your rude to people who are obviously much younger than you<br/>
 <img src="https://i.ibb.co/YB7FnbTT/tumblr-a5bf618c2fb67b93809ff3e53049ad89-ca69a782-75.webp"> bigot/terf/transmed/radfem/radqueer/transID/MAGA or any other STUPID politcal belief<br/>
 <img src="https://i.ibb.co/YB7FnbTT/tumblr-a5bf618c2fb67b93809ff3e53049ad89-ca69a782-75.webp"> reich fandom, napoleon fandom, sovietcore, or any other disrespectful community that romanticizes horrible things (i dont mind historical/ OCs but these are a very specific type of people)<br/>
 <img src="https://i.ibb.co/YB7FnbTT/tumblr-a5bf618c2fb67b93809ff3e53049ad89-ca69a782-75.webp"> true crime community (normal people who enjoy true crime can interact but dont talk about that stuff with me or mention it near me)<br/>
-<img src="https://i.ibb.co/YB7FnbTT/tumblr-a5bf618c2fb67b93809ff3e53049ad89-ca69a782-75.webp"> those AO3 superfans who act like its the best thing ever (idc if youre a casual user of it, i use it too if the fic isnt on any other website, but i dont like that website because it allows NSFW writing about real life children.) <br/>
+<img src="https://i.ibb.co/YB7FnbTT/tumblr-a5bf618c2fb67b93809ff3e53049ad89-ca69a782-75.webp"> anyone who unironically considers themselve problematic or any synonyms of the word<br/>
 
 dni hetalia dni hetlaia dni hetalia dni heatlia 🫤🫤🫤🫤🫤🫤🫤🫤🫤🫤!!!!! exception if u also enjoy CH just dont talk to me when youre in hetalia mode PLEASEPLEASPLEASE🥹✌️🕊️☮️
 
