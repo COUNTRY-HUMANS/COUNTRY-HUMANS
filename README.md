@@ -15,6 +15,7 @@ wth the profile view counter reset back to 1 wtf....
 if this FUCKING dumpster code breaks ONE more time..😡😡😡idk what ill doooooo!!!!
 BEWARE!!! ThIS CAN LOOK WONKY ON MOBILE!!! i think it depends on device and browser i have no idea
 
+BTW!!! im genuinely very sorry if i was ever rude to you in the past... there was a time kinda recently-ish (i think it was like early 2025 MAYBE late 2024) where i was soooo mean/cold/distant to a majority of people i interacted with :( i genuinely feel very bad about it and i promise im a different person now...
 
 <img src="https://64.media.tumblr.com/0116d0e6e0905585281ef2d10d591a13/92fa5bf93eff5191-49/s2048x3072/72ab9ecd8344f12e3a1ab0584f6dba4911bcc791.pnj"> <br/>
 
