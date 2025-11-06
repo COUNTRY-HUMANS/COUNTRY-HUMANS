@@ -3,7 +3,7 @@
 ![this fucking frame that keeps breaking](https://i.imgur.com/EmFFAm7.png)
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=COUNTRY-HUMANS&color=yellow&style=plastic&label=⠀⠀🔆⠀⠀)
-<img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/COUNTRY-HUMANS?color=yellow&style=plastic&abbreviated=false&label=friends"/>
+<img alt="followers" src="https://img.shields.io/github/followers/COUNTRY-HUMANS?color=yellow&style=plastic&abbreviated=false&label=friends"/>
 
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b5af5ef2-ec96-4794-82ba-4aaea5d28f4f/ddufsvk-6b5a1ce5-1021-4c4f-9956-5403ce85a635.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9iNWFmNWVmMi1lYzk2LTQ3OTQtODJiYS00YWFlYTVkMjhmNGYvZGR1ZnN2ay02YjVhMWNlNS0xMDIxLTRjNGYtOTk1Ni01NDAzY2U4NWE2MzUucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Wx5l7SM0ciG5pQeolFYRp9sV5kdqm9YPt0MqbF_ms1k">
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b5af5ef2-ec96-4794-82ba-4aaea5d28f4f/dduft3o-cd5f39af-d05f-423e-b5a3-76d4f9ef2991.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9iNWFmNWVmMi1lYzk2LTQ3OTQtODJiYS00YWFlYTVkMjhmNGYvZGR1ZnQzby1jZDVmMzlhZi1kMDVmLTQyM2UtYjVhMy03NmQ0ZjllZjI5OTEucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.x6lVdYyhah7h7kPL6k-OxauaYXL6DuS-Qjusq8uNMzI">
