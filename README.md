@@ -63,7 +63,7 @@ watch this it has ME in it -
 https://www.youtube.com/watch?v=yExOlnrwMSE
 
 ‎‎
-<img src="https://i.ibb.co/m5LjLxTB/Image-2.png">
+<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/82c1eeab-2ea9-4570-82d4-cab7fd19a186/dkvggr6-9e42aecf-7630-4769-93a3-f4bb25c4507f.png/v1/fill/w_1651,h_484/image_34__by_racoonfucker124_dkvggr6-pre.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NjAxIiwicGF0aCI6Ii9mLzgyYzFlZWFiLTJlYTktNDU3MC04MmQ0LWNhYjdmZDE5YTE4Ni9ka3ZnZ3I2LTllNDJhZWNmLTc2MzAtNDc2OS05M2EzLWY0YmIyNWM0NTA3Zi5wbmciLCJ3aWR0aCI6Ijw9MjA0OCJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.e1e7lrn8xkV4KvgNV6lgHR_5kfbUIOipFlalZKZrQKc">
 <sub>image creds
 [frames](https://www.tumblr.com/xycrowlo/790859748281122816/hi-i-made-things-credit-appreciated-but-not)
 [divider](https://www.tumblr.com/strangergraphics/792142277393956864/hello-i-was-wondering-if-you-could-do)
