@@ -16,11 +16,13 @@
 <table>
   <tr>
     <th>
-$\color{Goldenrod}{\textsf{feel free to sit near me/cuddle/hide behind me}}$ <br>
-$\color{Goldenrod}{\textsf{i'm almost always offtab, so whisper to interact}}$ <br>
-$\color{Goldenrod}{\textsf{i might be slow at replying/disconnect from pt}}$ <br>
-$\color{Goldenrod}{\textsf{i can be awkward but i promise im nice}}$ <br>
-$\color{Goldenrod}{\textsf{feel free to copy/inspo/post me on pinterest}}$ <br>
+      $\color{Goldenrod}{\textsf{feel free to sit near me/cuddle/hide behind me}}$ <br>
+      $\color{Goldenrod}{\textsf{i'm almost always offtab, so whisper to interact}}$ <br>
+      $\color{Goldenrod}{\textsf{i might be slow at replying/disconnect from pt}}$ <br>
+      $\color{Goldenrod}{\textsf{i can be awkward but i promise im nice}}$ <br>
+      $\color{Goldenrod}{\textsf{im a minor, 31/1/2010}}$ <br>
+      $\color{Goldenrod}{\textsf{dont vent to me if you want good advice}}$ <br>
+      $\color{Goldenrod}{\textsf{feel free to copy/inspo/post me on pinterest}}$ <br>
 </th>
 </tr>
 </table>
