@@ -1,8 +1,9 @@
 <div align="center">
 <img width="1280" height="429" alt="tumblr_ed8fdf2fc5b7c33848195f5630fef746_ccd4d6a5_1280" src="https://github.com/user-attachments/assets/ab58cffa-9f3d-4aa5-b79c-30295d83bbd1"/>
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=COUNTRY-HUMANS&color=yellow&style=plastic&label=vistors)
-<img src="https://64.media.tumblr.com/c33cd32f799e55a2288a679e0377bff2/283a1561d2365e6c-cc/s75x75_c1/190ae013652bbacff4a2d6dd0b0cdbf6d578d80e.gifv"> [![GitHub followers](https://img.shields.io/github/followers/COUNTRY-HUMANS.svg?style=plastic&label=friends&color=yellow&maxAge=2592000)](https://github.com/COUNTRY-HUMANS?tab=friend)
+<img src="https://visitor-badge.laobi.icu/badge?page_id=COUNTRY-HUMANS.COUNTRY-HUMANS&left_color=yellow&right_color=gold&left_text=VISITORS;"/>
+<img src="https://64.media.tumblr.com/c33cd32f799e55a2288a679e0377bff2/283a1561d2365e6c-cc/s75x75_c1/190ae013652bbacff4a2d6dd0b0cdbf6d578d80e.gifv"> <img alt="GitHub followers" src="https://img.shields.io/github/followers/COUNTRY-HUMANS?style=flat&label=FRIENDS;&labelColor=yellow&color=gold">
+
 <img width="2047" height="60" alt="tumblr-3219f4cddd6e58dd463a61101e40ffd6-28e4e610-2048-fliter-gold-sunset-channel-blue-mode-normal" src="https://github.com/user-attachments/assets/4e56e3c4-3ac1-4e56-bb7f-f297f6f030fa"/>
 
 <img align="left" width="300" height="300" alt="tumblr_c2a585704b871d75f3333042ad2a22b0_7afa730b_1280" src="https://github.com/user-attachments/assets/e59234c5-8c44-478d-815e-dc0f4d3e6f62"/>
