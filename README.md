@@ -24,6 +24,7 @@
       $\color{Goldenrod}{\textsf{im a minor, 31/1/2010}}$ <br>
       $\color{Goldenrod}{\textsf{dont vent to me if you want good advice}}$ <br>
       $\color{Goldenrod}{\textsf{feel free to copy/inspo/post me on pinterest}}$ <br>
+      $\color{Goldenrod}{\textsf{i unfriend people who are offline for many days}}$ <br>
 </th>
 </tr>
 </table>
