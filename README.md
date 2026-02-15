@@ -61,3 +61,7 @@ $\color{Goldenrod}{\textsf{over 18, under 13, hetalia fan}}$
 $\color{Goldenrod}\Huge{\textsf{(⌐□ᴗ□)}}$ <br>
 $\color{Goldenrod}\Huge{\textsf{this is only for ponytown lol}}$ <br>
 <img width="1280" height="429" alt="tumblr_e266a9a017bedb61f583f088ef1c0d7c_dc456a5b_1280" src="https://github.com/user-attachments/assets/0fd3aa69-32f3-4b5f-89bb-4dbb294be22d"/>
+
+<img width="652" height="246" alt="image" src="https://github.com/user-attachments/assets/83e0ac69-ddac-4759-a20a-81edfd05dc3d" /> <br>
+
+[@bradsnep](https://www.github.com/bradsnep) [@Davestridersjuice](https://www.github.com/Davestridersjuice) [@piercedwish](https://www.github.com/piercedwish) & me
