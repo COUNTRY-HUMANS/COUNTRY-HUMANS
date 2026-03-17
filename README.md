@@ -64,4 +64,4 @@ $\color{Goldenrod}\Huge{\textsf{this is only for ponytown lol}}$ <br>
 
 <img width="652" height="246" alt="image" src="https://github.com/user-attachments/assets/83e0ac69-ddac-4759-a20a-81edfd05dc3d" /> <br>
 
-[@freedumbst](https://www.github.com/freedumbst) [@mewtuna](https://www.github.com/mewtuna) [@piercedwish](https://www.github.com/piercedwish) & me
+[@freedumbst](https://www.github.com/freedumbst) [@mewtuna](https://www.github.com/mewtuna) [@bodyphobic](https://www.github.com/bodyphobic) & me
