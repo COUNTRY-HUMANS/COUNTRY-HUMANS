@@ -39,6 +39,8 @@ $\color{E9CD63}\large{\texttt{this is only for ponytown!!!}}$ <br>
 [![credit](https://imgur.com/tfK3dgY.png)](https://likeymelikeylikeylikey2.neocities.org/misc)
 [![credit](https://imgur.com/tfK3dgY.png)](https://ca.pinterest.com/pin/4855512094878176/)
 [![credit](https://imgur.com/tfK3dgY.png)](https://toyhou.se/32315427.my-tiny-pride-flags-v2)
+[![credit](https://imgur.com/tfK3dgY.png)](https://ca.pinterest.com/pin/59250551351586371/)
+[![credit](https://imgur.com/tfK3dgY.png)](https://rentry.org/lavender-lace)
 </div>
 </body>
 </html>
