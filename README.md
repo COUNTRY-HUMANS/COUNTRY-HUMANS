@@ -44,6 +44,7 @@ $\color{E9CD63}\large{\texttt{this is only for ponytown!!!}}$ <br>
 </div>
 
 <img src="https://dl.glitter-graphics.com/pub/1374/1374531sr19ipwsrg.gif">
+<img src="https://files.catbox.moe/6s7wgn.gif">
 
 </body>
 </html>
