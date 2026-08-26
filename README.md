@@ -25,7 +25,6 @@
     </th>
   </tr>
   </table>
-  <a href="https://eveleen.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=ZCOOL+KuaiLe&size=40&duration=1000&pause=&color=E9CD63&center=true&vCenter=true&repeat=false&width=260&height=55&lines=Atabook" alt="Typing SVG" /></a>
   <img src="https://imgur.com/MZQKRfE.png" alt="Bye" width="250">
 <img src="https://imgur.com/2PDlMZT.png" alt="Divider" width="1000" height="12">
   
