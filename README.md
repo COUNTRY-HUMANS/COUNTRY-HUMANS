@@ -51,22 +51,22 @@ This video is my girlfriwend and she is awrsome and she is a good driver!
 Hey do youknow who finnley fletcher is she is the most bestest person in the whole wide world and lets just say... shes kinda my gf (smile) so yeah... lets just say.. those ones who try and stand in the way of our love... they get... lets just say... a free visist the funeral home.. yeah.. we're kinda pyscho chicks. (holding knife while saying this and smiling like a demon) fact: finnley fletcher is better than everyone that you know, unless you also know her, in that case she topples the leaderboard of people you know you probably should disqualify her to give the others a fighting chance. she is so popular that even your approvial is not needed, like pennies to a millionaire. She is so beautiful people's eyes start bleeding rainbow glitter sparkles when they look at her and then they explode and turn into a pack of prarie dogs that can ride on rainbows and talk to unicorns. she is the queen of liechtenstein, both IRL (that means in real life to you normies) and in Hetalia (that also means real life to you normies) And she is the biggest fan of liechtenstein even Hans Adam the 2nd (who is the prince of liecntenstein, 07th of october 2026) is a lesser of a fan than her. in fact, he even called her on the telephone to congradcuate her on being such a liech fan, It's True! If you try to challenge her, i will have to have a duel with you because she is my QUEEN and yep, i am her KING... She voted for Kamala... Don't test us cus my cousin has a gun lisence in the canadian province of British Columbia, also.. my baby got a gun my baby got a gun my baby got a gun (this is a reference to the mother mother song hayloft ii, which is a sequeal to hayloft 1 ) So yeah, finnley is kinda awesome..! Kinda the peter to my grffin, the american to my dad, the country to my human (smile) empathasis on CUNTry.. Lol... Cunty slay! Don't mess with a man who got nothing to lose but he bae, cus he will do anything to protect her and make sure she smiles at the end of the day. I will even stop hustling, to see her bustling. I don't even need money, as long as shes my hunny. She the elon to my Musk cus she makes me feel lilke a trillion bucks! If you upset her you will be asking for my fist... and if you meet with my fist, you will surely get my piss... oh wait nah, thats reserved for my bitch (fun fact: finn is a bitch because bitches are female dogs, and dogs bark, and bark grows on trees and trees are nature, and nature is apart of earth, and finn is my world!)
 
 <h6>~{ EVIEFINNEY MAFIA }~ <i>💕 xoxo gossip gurlz 💕</i> Seven Nation Army of Lovers ~</h6>
-<a href="https://github.com/aphbelarus">aphbelarus</a>[Pyscho Bitch🔪🥰🔪]<br>
-<a href="https://github.com/aphukraine">aphukraine</a>[Mom💅]<br>
-<a href="https://github.com/aphbelgium">aphbelgium</a>[🤭CuteQueen🤭]<br>
-<a href="https://github.com/aphliech">aphliech</a>[🪽Angel with a shot Gun🪽]<br>
-<a href="https://github.com/APHSwitzy">APHswitzy</a>[😂The one who has nothing to lose]<br>
-<a href="https://github.com/APHroshi">APHroshi</a>[The😈Dealer.]<br>
-<a href="https://github.com/aphUSA">aphUSA</a>[💗HUSBANDO💍👰‍♂️]<br>
-<a href="https://github.com/aphMonaco">aphMonaco</a>[The friend who only fears God.]<br>
-<a href="https://github.com/aphUnitedStates">aphUnitedStates</a>[Oily and bouncy!]<br>
-<a href="https://github.com/APHcanadia">APHcanadia</a>[teh babeh bean🧸🥺]<br>
-<a href="https://github.com/aphDoitsu">aphDoitsu</a>[Not papa🍼... Daddy ❤️‍🔥]<br>
-<a href="https://github.com/aphUnitedKingdom">aphUnitedKingdom</a>[The guy who is hung? nah, got hanged☠️]<br>
-<a href="https://github.com/aphGreatBritain">aphGreatBritain</a>[😣Just a mess😣]<br>
-<a href="https://github.com/aphWy">aphWy</a>[❔Confused ahh little buddy]<br>
-<a href="https://github.com/aphKugelmugel">aphKugelmugel</a>[😛KugelyMugely😛]<br>
-<a href="https://github.com/aphPolska">aphPolska</a>[Softi Femboi🩷UwU]<br>
+<a href="https://github.com/aphbelarus">aphbelarus</a> [Pyscho Bitch🔪🥰🔪]<br>
+<a href="https://github.com/aphukraine">aphukraine</a> [Mom💅]<br>
+<a href="https://github.com/aphbelgium">aphbelgium</a> [🤭CuteQueen🤭]<br>
+<a href="https://github.com/aphliech">aphliech</a> [🪽Angel with a shot Gun🪽]<br>
+<a href="https://github.com/APHSwitzy">APHswitzy</a> [Angy Hedgehog😡🦔]<br>
+<a href="https://github.com/APHroshi">APHroshi</a> [The😈Dealer.]<br>
+<a href="https://github.com/aphUSA">aphUSA</a> [💗HUSBANDO💍👰‍♂️]<br>
+<a href="https://github.com/aphMonaco">aphMonaco</a> [The friend who only fears God.]<br>
+<a href="https://github.com/aphUnitedStates">aphUnitedStates</a> [Oily and bouncy!]<br>
+<a href="https://github.com/APHcanadia">APHcanadia</a> [teh babeh bean🧸🥺]<br>
+<a href="https://github.com/aphDoitsu">aphDoitsu</a> [Not papa🍼... Daddy ❤️‍🔥]<br>
+<a href="https://github.com/aphUnitedKingdom">aphUnitedKingdom</a> [The guy who is hung? nah, got hanged☠️]<br>
+<a href="https://github.com/aphGreatBritain">aphGreatBritain</a> [😣Just a mess😣]<br>
+<a href="https://github.com/aphWy">aphWy</a> [❔Confused ahh little buddy]<br>
+<a href="https://github.com/aphKugelmugel">aphKugelmugel</a> [😛KugelyMugely😛]<br>
+<a href="https://github.com/aphPolska">aphPolska</a> [Softi Femboi🩷UwU]<br>
 <h6>-- current number of member: 16 -- <i>😈Care to Join The Dark Side?😈</i></h6>
 
 <img src="https://file.garden/anP7-SXXiQfEPX3r/hetalia%20fuck.png" alt="art">
