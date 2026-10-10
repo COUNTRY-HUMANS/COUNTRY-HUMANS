@@ -67,6 +67,14 @@ Hey do youknow who finnley fletcher is she is the most bestest person in the who
 <a href="https://github.com/aphWy">aphWy</a> [❔Confused ahh little buddy]<br>
 <a href="https://github.com/aphKugelmugel">aphKugelmugel</a> [😛KugelyMugely😛]<br>
 <a href="https://github.com/aphPolska">aphPolska</a> [Softi Femboi🩷UwU]<br>
+<a href="https://github.com/aphVietnam">aphVietnam</a> [Sis who gifts 'Nam flashbacks 💥😰]<br>
+<a href="https://github.com/aphCzechia">aphCzechia</a> [The friend who is dead 🕊️]<br>
+<a href="https://github.com/aphEspana">aphEspana</a> [🍅The friend who gets tomato thrown at he and likes it 🍅🍅]<br>
+<a href="https://github.com/aphDeutschland">aphDeutschland</a> [SCHNITZEL]<br>
+<a href="https://github.com/aphSchweiz">aphSchweiz</a> [That guy who is always crossed💀]<br>
+<a href="https://github.com/aphSuomi">aphSuomi</a> [Random kid]<br>
+<a href="https://github.com/aphHanguk">aphHanguk</a> [That friend who got banned 1 😭]<br>
+<a href="https://github.com/aphEesti">aphEesti</a> [That friend who got banned 2 😭]<br>
 <h6>-- current number of member: 16 -- <i>😈Care to Join The Dark Side?😈</i></h6>
 
 <img src="https://file.garden/anP7-SXXiQfEPX3r/hetalia%20fuck.png" alt="art">
