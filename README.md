@@ -61,7 +61,13 @@ Hey do youknow who finnley fletcher is she is the most bestest person in the who
 <a href="https://github.com/aphMonaco">aphMonaco</a>[The friend who only fears God.]<br>
 <a href="https://github.com/aphUnitedStates">aphUnitedStates</a>[Oily and bouncy!]<br>
 <a href="https://github.com/APHcanadia">APHcanadia</a>[teh babeh bean🧸🥺]<br>
-<h6>-- current number of member: 10 -- <i>😈Care to Join The Dark Side?😈</i></h6>
+<a href="https://github.com/aphDoitsu">aphDoitsu</a>[Not papa🍼... Daddy ❤️‍🔥]<br>
+<a href="https://github.com/aphUnitedKingdom">aphUnitedKingdom</a>[The guy who is hung? nah, got hanged☠️]<br>
+<a href="https://github.com/aphGreatBritain">aphGreatBritain</a>[😣Just a mess😣]<br>
+<a href="https://github.com/aphWy">aphWy</a>[❔Confused ahh little buddy]<br>
+<a href="https://github.com/aphKugelmugel">aphKugelmugel</a>[😛KugelyMugely😛]<br>
+<a href="https://github.com/aphPolska">aphPolska</a>[Softi Femboi🩷UwU]<br>
+<h6>-- current number of member: 16 -- <i>😈Care to Join The Dark Side?😈</i></h6>
 
 <img src="https://file.garden/anP7-SXXiQfEPX3r/hetalia%20fuck.png" alt="art">
 </body>
